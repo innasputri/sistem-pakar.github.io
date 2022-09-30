@@ -1,0 +1,1 @@
+ Balai Kesehatan Umum Al-Manar 
